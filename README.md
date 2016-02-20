@@ -15,3 +15,13 @@ honking travel with KangKyungWan
 ##마지막날
 ### 홍콩 - 인천공항
 13:10 → 18:05 편명 932
+
+
+
+
+
+
+
+
+##### 홍콩섬 피크트램
+http://www.ticketmonster.co.kr/deal/248916541?keyword=홍콩+피크트램
