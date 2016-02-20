@@ -17,6 +17,14 @@ honking travel with KangKyungWan
 3. [티몬 마카오 타워클라이밍](http://www.ticketmonster.co.kr/deal/274170649//16150000)
 4. [티몬 피크트램](http://www.ticketmonster.co.kr/deal/248916541?keyword=홍콩+피크트램)
 
+---
+##### 마카오 볼거리 [출처](http://m.tourtips.com/dest/content/1001_hongkong?contentID=1000036163101&type=theme&theme=)
+1. 세나도 광장
+1. 성 도미니크 성당 / 성 바울 성당
+1. 시티 오브 드림즈 (공연장) - 하우스 오브 댄싱 워터가 핫한 공연 (예약필수)
+1. 베네시안 호텔
+1. 카지노
+
 
 ##넷째날
 ##마지막날
