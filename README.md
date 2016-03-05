@@ -18,8 +18,8 @@ honking travel with KangKyungWan
 
 ##셋째날
 
-~~1. [티몬 마카오 투어](http://www.ticketmonster.co.kr/deal/226758953/16150000)~~ 필요없다고 판단
-~~2. [티몬 마카오 번지](http://www.ticketmonster.co.kr/deal/274172513//16150000)~~ 가격에 비해 너무 짧은 경험 시간
+~~1. [티몬 마카오 투어](http://www.ticketmonster.co.kr/deal/226758953/16150000)~~ 필요없다고 판단  
+~~2. [티몬 마카오 번지](http://www.ticketmonster.co.kr/deal/274172513//16150000)~~ 가격에 비해 너무 짧은 경험 시간  
 3. [티몬 마카오 타워클라이밍](http://www.ticketmonster.co.kr/deal/274170649//16150000) **! 낙찰 !**
 4. [티몬 피크트램](http://www.ticketmonster.co.kr/deal/248916541?keyword=홍콩+피크트램) ** 구매 완료 **
 
