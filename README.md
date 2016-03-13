@@ -70,10 +70,12 @@ Cherry Shrimp Fried Rice (HK $92)
 
 맥주와 간단한 안주거리 빵을 사서 호텔로 귀가.
 
-####해야할 일
-현지 유심 발급받기
+#둘째날 계획
 
-##둘째날
+오전 샤오미 몽콕 매장 - 荷里活商業中心 20층(Hollywood Plaza 20F)  
+홍콩섬 이동  
+점심 indonesian restaurant 1968 hongkong - 미슐랭 1스타  
+점심 이후 미드레벨 에스컬레이터 - 800M짜리 에스컬레이터  
 
 ##셋째날
 
