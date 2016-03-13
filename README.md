@@ -20,9 +20,18 @@ A14 부스에서 티몬에서 구입한 AEL과 피크트램 티켓 수령받음.
 AEL을 타고 구룡역으로 이동.
 
 구룡역 엘리먼츠 몰에 있는 the night market 에서 점심먹음
+
 Three Cup Chicken Mochi Ball (HK $42)
+
+<img src="https://github.com/yangroro/hongkong-travel-2016/blob/master/img_1day/Three%20Cup%20Chicken%20Mochi%20Ball.jpg?raw=true" width="500">
+
 Sweet & Sour Pork (HK $82)
+
+<img src="https://github.com/yangroro/hongkong-travel-2016/blob/master/img_1day/Sweet%20&%20Sour%20Pork.png?raw=true" width="500">
+
 Cherry Shrimp Fried Rice (HK $92)
+
+<img src="https://github.com/yangroro/hongkong-travel-2016/blob/master/img_1day/Cherry%20Shrimp%20Fried%20Rice.jpg?raw=true" width="500">
 
 구룡역에서 셔틀버스를 타고 호텔로 이동.
 
@@ -40,12 +49,24 @@ Cherry Shrimp Fried Rice (HK $92)
 
 야시장에서 딤섬 맛집인 딤딤섬에 방문함.
 
+<img src="https://github.com/yangroro/hongkong-travel-2016/blob/master/img_1day/dimdim1.jpg?raw=true" width="500">
 
-근처에 있는 허유산에 방문하여 망고쥬스를 흡입함.
+<img src="https://github.com/yangroro/hongkong-travel-2016/blob/master/img_1day/dimdim2.jpg?raw=true" width="500">
+
+<img src="https://github.com/yangroro/hongkong-travel-2016/blob/master/img_1day/dimdim3.png?raw=true" width="500">
+
+근처에 있는 허유산에 방문하여 망고쥬스를 흡입함. (HK $26)
+
+<img src="https://github.com/yangroro/hongkong-travel-2016/blob/master/img_1day/housan.jpg?raw=true" width="500">
 
 옆에 있는 스타벅스에서 아메리카를 마심. (Tall HK $30, Grande HK $33)
 
-야시장을 둘러보며 쇼핑을 즐김.
+<img src="https://github.com/yangroro/hongkong-travel-2016/blob/master/img_1day/starbucks.png?raw=true" width="500">
+
+
+야시장을 둘러보며 쇼핑을 즐김
+
+<img src="https://github.com/yangroro/hongkong-travel-2016/blob/master/img_1day/monkok.png?raw=true" width="500">
 
 맥주와 간단한 안주거리 빵을 사서 호텔로 귀가.
 
