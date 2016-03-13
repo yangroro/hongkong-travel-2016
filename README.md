@@ -19,7 +19,7 @@ A14 부스에서 티몬에서 구입한 AEL과 피크트램 티켓 수령받음.
 AEL을 타고 구룡역으로 이동.  
 구룡역 엘리먼츠 몰에 있는 the night market 에서 점심먹음  
 Three Cup Chicken Mochi Ball (HK $42)  
-<img src="https://github.com/yangroro/hongkong-travel-2016/blob/master/img_1day/Three%20Cup%20Chicken%20Mochi%20Ball.jpg?raw=true" width="500">
+<img src="https://github.com/yangroro/hongkong-travel-2016/blob/master/img_1day/Three%20Cup%20Chicken%20Mochi%20Ball.jpg?raw=true" width="500">  
 Sweet & Sour Pork (HK $82)  
 <img src="https://github.com/yangroro/hongkong-travel-2016/blob/master/img_1day/Sweet%20&%20Sour%20Pork.png?raw=true" width="500">  
 Cherry Shrimp Fried Rice (HK $92)  
