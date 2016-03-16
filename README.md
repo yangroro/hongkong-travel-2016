@@ -68,7 +68,7 @@ Cherry Shrimp Fried Rice (HK $92)
 ##넷째날 & 마지막날
 
 1. MacBook 열기
-2. PyCHarm 실행
+2. PyCharm 실행
 3. 코딩
 
 ### 홍콩 - 인천공항
